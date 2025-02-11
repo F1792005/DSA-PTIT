@@ -1,2 +1,2 @@
 
-            cin >> a[i];
+qeqwemqwklen jn1j2nj12n4kj1nj1n4j12n1j
